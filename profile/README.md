@@ -34,11 +34,11 @@
 <img width="1280" height="1280" alt="2" src="https://github.com/user-attachments/assets/6f7b1991-d7f3-440c-a0aa-d8547198b477" />
 
 # ‧₊˚✧[Стафф]✧˚₊‧
-👑 [Прøбе́л - Разраб/Хост](https://github.com/GapAPK "GitHub")\
-🎨 Secret Melon - Художник\
-🔋 Бета-Тестер - Vojijpg\
-📰 [Viachek - Издатель](https://github.com/Vja0css "GitHub")\
-🛡️ Coffee - Модератор
+• 👑 [Прøбе́л - Разраб/Хост](https://github.com/GapAPK "GitHub")\
+• 🎨 Secret Melon - Художник\
+• 🔋 Бета-Тестер - Vojijpg\
+• 📰 [Viachek - Издатель](https://github.com/Vja0css "GitHub")\
+• 🛡️ Coffee - Модератор
 
 <img width="1200" height="675" alt="Без названия308_20260922205205" src="https://github.com/user-attachments/assets/bea30880-6805-4c2b-9417-e295e717e78c" />
 <hr>
