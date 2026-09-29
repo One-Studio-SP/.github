@@ -16,20 +16,20 @@
 </a>
 
 # ‧₊˚✧[Соц. Сети]✧˚₊‧
-🔴 [YouTube](https://youtube.com/@oldhorizons?si=1AuktTuvC0YaW7xQ "YouTube")\
-🔵 [Telegram](https://t.me/oldhorizons "Telegram")\
-💽 [Discord](https://discord.gg/p4KnZEVPgT "Discord")\
-🎁 [Почта](mailto:oldhorizonsofficial@gmail.com "Gmail")
+• 🔴 [YouTube](https://youtube.com/@oldhorizons?si=1AuktTuvC0YaW7xQ "YouTube")\
+• 🔵 [Telegram](https://t.me/oldhorizons "Telegram")\
+• 💽 [Discord](https://discord.gg/p4KnZEVPgT "Discord")\
+• 🎁 [Почта](mailto:oldhorizonsofficial@gmail.com "Gmail")
 
 <img width="1280" height="1115" alt="1" src="https://github.com/user-attachments/assets/180654c2-6f06-4b8b-99d4-52d4f7cb28dc" />
 
 # ‧₊˚✧[Скачать SP]✧˚₊‧
-🗑️ [Трешбокс](https://trashbox.ru/topics/192503/old-horizons "Tрешбокс")\
-⚫ [GitHub](https://github.com/One-Studio-SP/Old-Horizons "GitHub")\
-🏪 [itch.io](https://gap-apk.itch.io/old-horizons "itch.io")\
-🩴 [Zoro Game Store](https://zoro-game.store/pages/game/game.html?id=52 "Zoro Game Store")\
-⚡ [Game Jolt](https://gamejolt.com/games/oldhorizons/992533 "Game Jolt")\
-🔵 [RuStore](https://www.rustore.ru/catalog/app/com.oldhorizons.app "RuStore")
+• 🗑️ [Трешбокс](https://trashbox.ru/topics/192503/old-horizons "Tрешбокс")\
+• ⚫ [GitHub](https://github.com/One-Studio-SP/Old-Horizons "GitHub")\
+• 🏪 [itch.io](https://gap-apk.itch.io/old-horizons "itch.io")\
+• 🩴 [Zoro Game Store](https://zoro-game.store/pages/game/game.html?id=52 "Zoro Game Store")\
+• ⚡ [Game Jolt](https://gamejolt.com/games/oldhorizons/992533 "Game Jolt")\
+• 🔵 [RuStore](https://www.rustore.ru/catalog/app/com.oldhorizons.app "RuStore")
 
 <img width="1280" height="1280" alt="2" src="https://github.com/user-attachments/assets/6f7b1991-d7f3-440c-a0aa-d8547198b477" />
 
